@@ -1,5 +1,5 @@
-**David looked at Emma's beautiful smile.**
+Ils se retrouvent autour d'une table
 
-*All the pain of his last break-up disappeared.*
+l'homme mange un gâteau
 
-`All his doubts and fears about love had gone.`
+le chien fait des abdos
